@@ -29,7 +29,7 @@
 
 ## 完美世界 （ 2015年4月至今 ）
 
-### [最终幻想：觉醒](ff.laohu.com)
+### [最终幻想：觉醒](http://ff.laohu.com/)
 ![](http://otdgo898q.bkt.clouddn.com/17-7-21/58844368.jpg)
 
 职位：高级游戏设计师 职务：系统组组长
@@ -45,7 +45,7 @@
 项目没有上线，曾经的logo、网址都找不到了，很忧伤blasjdkajfgilajslknmlkasdlkjalskjdlkasjd
 
 
-### [Ground War:tanks](tanks.mail.ru)
+### [Ground War:tanks](https://tanks.mail.ru/)
 ![](http://otdgo898q.bkt.clouddn.com/17-7-21/82763242.jpg)
 
 职位：策划专员	职务：执行策划
