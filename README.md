@@ -19,7 +19,8 @@
  - Github：https://github.com/carryqin
 
  - 期望职位：Web前端开发
- - 期望薪资：税前月薪8k~12k，特别喜欢的公司可例外
+ - 当前薪资：18K
+ - 期望薪资：8k~12k，特别喜欢的公司可例外
  - 期望城市：天津
 
 ---
@@ -31,6 +32,7 @@
 ### [最终幻想：觉醒](ff.laohu.com)
 ![](http://otdgo898q.bkt.clouddn.com/17-7-21/58844368.jpg)
 职位：高级游戏设计师 职务：系统组组长
+
 blablablablabaljaijglaksjliwqjelkqjwe
 
  
@@ -38,7 +40,8 @@ blablablablabaljaijglaksjliwqjelkqjwe
 
 ### 坦克联盟
 职位：高级系统策划 职务：系统策划
-blasjdkajfgilajslknmlkasdlkjalskjdlkasjd
+
+项目没有上线，曾经的logo、网址都找不到了，很忧伤blasjdkajfgilajslknmlkasdlkjalskjdlkasjd
 
 
 ### [Ground War:tanks](tanks.mail.ru)
