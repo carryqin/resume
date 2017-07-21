@@ -31,9 +31,10 @@
 
 ### [最终幻想：觉醒](ff.laohu.com)
 ![](http://otdgo898q.bkt.clouddn.com/17-7-21/58844368.jpg)
+
 职位：高级游戏设计师 职务：系统组组长
 
-blablablablabaljaijglaksjliwqjelkqjwe
+惭愧惭愧，悔ip，中国的游戏行业近几年没有什么意思，很难受，天天都在接着怎么能更坑钱，，哎...blablabla
 
  
 ## 搜狐畅游 （ 2013年6月 ~ 2015年3月 ）
@@ -46,8 +47,9 @@ blablablablabaljaijglaksjliwqjelkqjwe
 
 ### [Ground War:tanks](tanks.mail.ru)
 ![](http://otdgo898q.bkt.clouddn.com/17-7-21/82763242.jpg)
-职位：策划专员	职务：执行策划
 
+职位：策划专员	职务：执行策划
+项目至今俄罗斯运营，表现还不错，没有那么多氪金狗屎元素，我还是很喜欢的..
 
 ---
 
